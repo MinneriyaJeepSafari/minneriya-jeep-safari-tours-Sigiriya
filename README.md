@@ -41,6 +41,13 @@ Welcome to Minneriya Jeep Safari & Tours, a trusted wildlife safari operator bas
 📞 +94 76 052 1285
 
 📧 kalingatrails@gmail.com
+https://www.instagram.com/kalingatrailsjeepsafari/
+http://www.linkedin.com/in/minneriya-jeep-safari-and-tours-sigiriya-6bb001398
+https://www.pinterest.com/MinneriyaJeepSafariTours/
+https://x.com/MinneriyaJeeps
+https://www.youtube.com/@MinneriyaJeepSafariSigiriya
+https://web.facebook.com/minneriyajeepsafariandtourssigiriya
+https://www.getyourguide.com/minneriya-jeep-safari-tours-sigiriya-s675632/
 
 🌐 [https://sites.google.com/view/minneriyajeepsafari/home](https://share.google/cDev6KEemOO5K7uKo)
 
